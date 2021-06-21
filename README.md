@@ -6,6 +6,6 @@
  - Sometimes I also speak German or English.
 
 
-📫 The easiest way to reach me is via Discord: @Ory#8801 or via Telegram: https://t.me/oryfox 📫
+📫 The easiest way to reach me is via Discord: @Ory#1111 or via Telegram: https://t.me/oryfox 📫
 
 <sub><sup>This was pretty hard to write.</sup></sub>
